@@ -1,1 +1,1 @@
-# jyotisharma2994.github.io
+# Personal website for [Jyoti Sharma](https://www.linkedin.com/in/jyotisharma2994/)
